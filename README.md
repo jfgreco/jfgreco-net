@@ -13,6 +13,7 @@
 
 ### Backyard Ice Rinks Community
 #### Co-Founder/Admin/Moderator
+Our group is dedicated to providing a platform where members can exchange tips, tricks, and advice on everything related to building, maintaining, and enjoying their own backyard ice rinks. Whether you're a seasoned rink master or a beginner eager to embark on your first frozen adventure, we welcome you with open arms.
 - [Website - Backyard Ice Rinks](https://www.backyardicerinks.org)
 - [Facebook - Backyard Ice Rinks](https://www.facebook.com/groups/backyardicerinks)
 - [Instagram - BackyrdIceRinks](https://www.instagram.com/backyrdicerinks)
