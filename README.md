@@ -1,3 +1,5 @@
+#John Greco
+
 - [Github](https://www.github.com/jfgreco)
 - [Instagram](https://www.instagram.com/jfgreco)
 - [X/Twitter](https://www.twitter.com/jfgreco)
@@ -15,3 +17,11 @@
 - [Facebook - Backyard Ice Rinks](https://www.facebook.com/groups/backyardicerinks)
 - [Instagram - BackyrdIceRinks](https://www.instagram.com/backyrdicerinks)
 - [X/Twitter - BackyrdIceRinks](https://twitter.com/backyrdicerinks)
+
+###Press
+- [Minnesotans Keep Alive The Tradition Of Makeshift Hockey Rinks](https://www.npr.org/2020/01/10/795160993/minnesotans-keep-alive-the-tradition-of-makeshift-hockey-rinks)
+- [Building an Ice Rink in Your Backyard? ‘Water and Gravity Will Always Win’](https://www.wsj.com/articles/building-an-ice-rink-in-your-backyard-water-and-gravity-will-always-win-11613494552)
+- [At home on the ice](https://www.startribune.com/minnesotas-coolest-backyard-ice-rinks-complete-with-floodlights-and-homemade-zambonis/600142278/)
+- ['It's magical': On Duluth's backyard rinks, ice time means family time](https://www.mprnews.org/story/2020/01/14/photos-video-duluths-backyard-rinks-continue-tradition-of-frozen-fun-of-frozen-fun)
+- [The puck stops here: The demand for backyard ice rinks heats up amid the pandemic](https://www.boston.com/real-estate/real-estate-news/2020/11/11/demand-for-backyard-ice-rinks-heats-up-in-pandemic/)
+- [Backyard Ice Rinks and AcuRite](https://www.acurite.com/blog/backyard-ice-rinks-and-acurite.html)
