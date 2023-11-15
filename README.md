@@ -4,7 +4,7 @@
 - [X/Twitter](https://www.twitter.com/jfgreco)
 - [LinkedIn](https://www.linkedin.com/in/jfgreco/)
 - [Reddit](https://www.reddit.com/user/jfgreco)
-- [Newsblue](https://jfgreco.newsblur.com/)
+- [Newsblur](https://jfgreco.newsblur.com/)
 
 ### C# Development Projets
 - [Federation Hockey Stats](https://www.federationhockeystats.com) - Founder/Developer
