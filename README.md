@@ -1,4 +1,3 @@
-# John Greco
 - [Github](https://www.github.com/jfgreco)
 - [Instagram](https://www.instagram.com/jfgreco)
 - [X/Twitter](https://www.twitter.com/jfgreco)
