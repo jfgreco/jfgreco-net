@@ -6,6 +6,7 @@
 - [LinkedIn](https://www.linkedin.com/in/jfgreco/)
 - [Reddit](https://www.reddit.com/user/jfgreco)
 - [Newsblur](https://jfgreco.newsblur.com/)
+- [Spotify](https://open.spotify.com/user/jfgreco)
 
 ### C# Development Projets
 - [Federation Hockey Stats](https://www.federationhockeystats.com) - Founder/Developer
