@@ -23,6 +23,7 @@ Our group is dedicated to providing a platform where members can exchange tips, 
 
 ### Press
 As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I have had the oppotunity to speak about backyard ice rinks and the community we have built on Facebook. 
+- [Freezing temps have brought back the backyard ice rink](https://www.inquirer.com/arts/backyard-rinks-are-sliding-into-favor-20250124.html)
 - [Minnesotans Keep Alive The Tradition Of Makeshift Hockey Rinks](https://www.npr.org/2020/01/10/795160993/minnesotans-keep-alive-the-tradition-of-makeshift-hockey-rinks)
 - [Building an Ice Rink in Your Backyard? ‘Water and Gravity Will Always Win’](https://www.wsj.com/articles/building-an-ice-rink-in-your-backyard-water-and-gravity-will-always-win-11613494552)
 - [At home on the ice](https://www.startribune.com/minnesotas-coolest-backyard-ice-rinks-complete-with-floodlights-and-homemade-zambonis/600142278/)
