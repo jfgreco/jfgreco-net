@@ -30,3 +30,15 @@ As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I h
 - ['It's magical': On Duluth's backyard rinks, ice time means family time](https://www.mprnews.org/story/2020/01/14/photos-video-duluths-backyard-rinks-continue-tradition-of-frozen-fun-of-frozen-fun)
 - [The puck stops here: The demand for backyard ice rinks heats up amid the pandemic](https://www.boston.com/real-estate/real-estate-news/2020/11/11/demand-for-backyard-ice-rinks-heats-up-in-pandemic/)
 - [Backyard Ice Rinks and AcuRite](https://www.acurite.com/blog/backyard-ice-rinks-and-acurite.html)
+
+### Coaching
+- (USA Hockey Level 4 Certified Coach)[https://cepsearch.usahockey.com/eyJpdiI6IldQeUVNNklaOUt3WjVHeE1YeEo2UGc9PSIsInZhbHVlIjoidzkxZjJvMWVmRmUwZ0NreWJNRzE3QT09IiwibWFjIjoiZjc5OWMyZjEyMDQyMGVlNmJmMzIyODAyYWU0NTgyMWZkOGY5NTc0ZDU3MTFhZWExNzk3MWNjNDA2ZTU5MGI1NCJ9]
+#### Coaching Experience
+- [West Morris Wolfpack](https://www.wolfpackicehockey.com) - 2019-Current
+    - Mites 2019-2021
+    - Squirt B 2021-2022
+    - Squirt A 2022-2023
+    - Peewee A 2023-2025
+- North Jersey Kings Squirt B - 2022-23
+- [North Jersey Kings Peewee B](https://myhockeyrankings.com/team_info.php?y=2023&t=24236) - 2023-24
+- [New Jersey Jets Peewee A](https://myhockeyrankings.com/team_info.php?y=2024&t=18015) - 2024-25
