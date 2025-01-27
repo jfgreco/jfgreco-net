@@ -32,7 +32,7 @@ As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I h
 - [Backyard Ice Rinks and AcuRite](https://www.acurite.com/blog/backyard-ice-rinks-and-acurite.html)
 
 ### Coaching
-- (USA Hockey Level 4 Certified Coach)[https://cepsearch.usahockey.com/eyJpdiI6IldQeUVNNklaOUt3WjVHeE1YeEo2UGc9PSIsInZhbHVlIjoidzkxZjJvMWVmRmUwZ0NreWJNRzE3QT09IiwibWFjIjoiZjc5OWMyZjEyMDQyMGVlNmJmMzIyODAyYWU0NTgyMWZkOGY5NTc0ZDU3MTFhZWExNzk3MWNjNDA2ZTU5MGI1NCJ9]
+- [USA Hockey Level 4 Certified Coach](https://cepsearch.usahockey.com/eyJpdiI6IldQeUVNNklaOUt3WjVHeE1YeEo2UGc9PSIsInZhbHVlIjoidzkxZjJvMWVmRmUwZ0NreWJNRzE3QT09IiwibWFjIjoiZjc5OWMyZjEyMDQyMGVlNmJmMzIyODAyYWU0NTgyMWZkOGY5NTc0ZDU3MTFhZWExNzk3MWNjNDA2ZTU5MGI1NCJ9)
 #### Coaching Experience
 - [West Morris Wolfpack](https://www.wolfpackicehockey.com) - 2019-Current
     - Mites 2019-2021
