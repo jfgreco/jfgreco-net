@@ -45,7 +45,7 @@ As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I h
 - [New Jersey Jets Peewee A](https://myhockeyrankings.com/team_info.php?y=2024&t=18015) - 2024-25
 
 ### Volunteer Work
-- West Morris Wolfpack
+- West Morris Wolfpack Youth Ice Hockey Club
     - Coach - 2019-Current
     - Treasurer - 2020-2023
     - President - 2023-Current
