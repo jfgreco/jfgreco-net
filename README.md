@@ -1,5 +1,3 @@
-# John Greco
-
 - [Github](https://www.github.com/jfgreco)
 - [Instagram](https://www.instagram.com/jfgreco)
 - [X/Twitter](https://www.twitter.com/jfgreco)
@@ -31,9 +29,9 @@ As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I h
 - [The puck stops here: The demand for backyard ice rinks heats up amid the pandemic](https://www.boston.com/real-estate/real-estate-news/2020/11/11/demand-for-backyard-ice-rinks-heats-up-in-pandemic/)
 - [Backyard Ice Rinks and AcuRite](https://www.acurite.com/blog/backyard-ice-rinks-and-acurite.html)
 
-### Coaching
+### Coaching Certification
 - [USA Hockey Level 4 Certified Coach](https://cepsearch.usahockey.com/eyJpdiI6IldQeUVNNklaOUt3WjVHeE1YeEo2UGc9PSIsInZhbHVlIjoidzkxZjJvMWVmRmUwZ0NreWJNRzE3QT09IiwibWFjIjoiZjc5OWMyZjEyMDQyMGVlNmJmMzIyODAyYWU0NTgyMWZkOGY5NTc0ZDU3MTFhZWExNzk3MWNjNDA2ZTU5MGI1NCJ9)
-#### Coaching Experience
+### Coaching Experience
 - [West Morris Wolfpack](https://www.wolfpackicehockey.com) - 2019-Current
     - Mites 2019-2021
     - Squirt B 2021-2022
@@ -42,3 +40,15 @@ As Co-Founder, administrator and moderator for the Backyard Ice Rinks group, I h
 - North Jersey Kings Squirt B - 2022-23
 - [North Jersey Kings Peewee B](https://myhockeyrankings.com/team_info.php?y=2023&t=24236) - 2023-24
 - [New Jersey Jets Peewee A](https://myhockeyrankings.com/team_info.php?y=2024&t=18015) - 2024-25
+
+### Volunteer Work
+- West Morris Wolfpack
+    - Coach - 2019-Current
+    - Treasurer - 2020-2023
+    - President - 2023-Current
+- Long Valley First Aid Squad
+    - Rescue Technician/EMR - 2010-Current
+    - Rescue Lieutenant - 2021-Current
+    - Rescue Sergeant - 2020
+- Bergenfield Fire Department
+    - Firefighter - 1999-2007 
